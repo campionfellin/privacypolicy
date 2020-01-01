@@ -1,4 +1,4 @@
-# Privacy Policy for Coffee Dice
+# Privacy Policy for Coffee Dice and Drink More Water Reminder
 This policy applies to all information collected or submitted on Campion’s website and his apps for iPhone and any other devices and platforms.
 
 ## Information I collect
