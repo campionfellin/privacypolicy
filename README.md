@@ -1,4 +1,4 @@
-# Privacy Policy for Coffee Dice and Daily Coffee Facts
+# Privacy Policy for Coffee Dice and Daily Coffee Facts and Coffee Quality Info
 This policy applies to all information collected or submitted on Campion’s website and his apps for iPhone and any other devices and platforms.
 
 ## Information I collect
